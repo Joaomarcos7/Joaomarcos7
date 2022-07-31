@@ -7,5 +7,5 @@
 - 💞️ I´m willing to collaborate on the demonstration of how a beginner learns everyday a new thing, the rule to code, a new programming language, etc. 
 - 
 - 📫 How to reach me : instagram- joaomarcos_dsc7   
-                       email- joaomarcos77777.jm@gmail.com
+                              email- joaomarcos77777.jm@gmail.com
 
